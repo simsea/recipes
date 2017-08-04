@@ -5,7 +5,7 @@ _Makes one 9-inch pie (8 servings)_
 ### For the pie crust:
 
     1½ cups flour, plus more for dusting
-    8 tablespoons (1 stick) chilled unsalted butter, cut into pieces
+    1 stick (½ cup) chilled unsalted butter, cut into pieces
     ¼ teaspoon salt
     3 tablespoons ice water
 

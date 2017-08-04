@@ -1,7 +1,6 @@
 Super Tasty Coconut Jerk Chicken and Sweet Potato
 =================================================
-What you will need should you choose this adventure:
-----------------------------------------------------
+### What you will need should you choose this adventure:
 
     1 lb of chicken breast cut into medium-sized chunks
     The creamy milk of a coconut or a tin of coconut milk
@@ -9,8 +8,7 @@ What you will need should you choose this adventure:
     1 medium onion finely chopped
     1 Jerk
 
-How to make a jerk:
--------------------
+### How to make a jerk:
 
     4 tbsp allspice
     1 tbsp thyme
@@ -26,8 +24,7 @@ How to make a jerk:
 
 _This will make a lot of jerk seasoning, you'll probably get a few runs through this dish before you run out._ Combine all the spices together in a small bowl. Hurrah. You want it to be too hot if you taste it straight. The coconut milk, fat from the meat and the rice will all temper the heat.
  
-How to make the other thing:
-----------------------------
+### How to make the other thing:
 
 Rub enough of the dry jerk spice mix into the chicken breasts to completely cover the chicken. 
 If you don't like the feel of animal flesh, this could be somewhat unpleasant, so you might 
