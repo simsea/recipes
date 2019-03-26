@@ -22,5 +22,5 @@ coat with oil. Cover with cloth and let rise in a warm place until doubled
 (about 1 hour). Punch down (deflate) dough and turn out onto a floured surface.
 Divide dough into 16 equal pieces (~63g) and form into rounds. Place rolls onto
 a lightly oiled baking sheet about 2" apart. Cover rolls with a cloth and let
-rise until doubled (about 40 minutes). Preheat over to 400F and bake rolls for
+rise until doubled (about 40 minutes). Preheat over to 400°F and bake rolls for
 about 18 to 20 minutes until golden brown.

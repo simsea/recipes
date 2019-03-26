@@ -31,7 +31,7 @@ into a disk, handling the dough as little as possible. Lightly dust with
 flour on both sides and wrap in waxed paper or plastic wrap; refrigerate 
 for at least 1 hour or up to 1 day.
 
-When ready to bake, preheat the oven to 400F degrees. Have ready a 9-inch 
+When ready to bake, preheat the oven to 400°F. Have ready a 9-inch 
 pie plate.
 
 On a lightly floured work surface, roll out the dough to a round about 1/8 
