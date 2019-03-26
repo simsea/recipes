@@ -20,6 +20,8 @@ _makes about 6-8 servings_
     1½ cups heavy cream
     2 tbsp chopped parsley
 
+### Things to do
+
 Heat the oil and butter in a large pot and sauté onions until softened (about 5 minutes). Add the flour and mix well. Add the wine (if using) and turn up the heat, cooking uncovered until the win reduces by half. If not using wine, add ¼ cups water with the clam juice.
 
 Add potatoes, clam juice, bay leaf, thyme, salt, pepper, and Old Bay spice. The potatoes should be just barely covered with the liquid in the pot. If not, add a little water so that they are. Bring to a simmer then lower the head and cook, covered, until the potatoes are almost done (about 10-15 minutes).
